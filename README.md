@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Manishasadhwani88
+- 👋 Hi, I’m @Manisha 24k-0837
 - 👀 I’m interested in solving numericals 
 - 🌱 I’m currently learning programming 
 - 💕 I'm 17 years old 
